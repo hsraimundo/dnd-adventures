@@ -8,4 +8,4 @@ This way we keep a record of the story that happened and the choices made, to ac
 * Keep the record of events for the DM to prepare the next step in the campaign;
 * Endulge my will to write a bit :)
 
-The beginning of the "Lost Mine of Phandelver" adventure is (here)[...].
+The beginning of the "Lost Mine of Phandelver" adventure is (here)[dnd-lmop-intro.md].
