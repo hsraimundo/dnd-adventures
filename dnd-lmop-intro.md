@@ -2,7 +2,7 @@
 
 ## The Beginning of the Adventure
 
-It was dark, the night was advanced, the air was cutting cold. Adrien didn't know why they were summoned and he feared for Serafina, the little halfling from the Tealeaf clan. They were here because their common friend Gundren send a messenger for them. The message was very secretive and simple: "Meet me in Neverwinter in 2 tendays, south entry. I trust you will come my friend. Gundren Rockseeker". The message was the same for Serafina so maybe more people received it as well? Adrien Stone, the great hero, could not refuse a call like this, it was a friend and it might be an adventure that would give him the ability to restore the name of his birth town. The Great Hero Adrien Stone, that sounded just right! And serafina made a living as a thief, she would be ok… he thought.
+It was dark, the night was advanced, the air was cutting cold. Adrien didn't know why they were summoned and he feared for Serafina, the little halfling from the Tealeaf clan. They were here because their common friend Gundren sent a messenger for them. The message was very secretive and simple: "Meet me in Neverwinter in 2 tendays, south entry. I trust you will come my friend. Gundren Rockseeker". The message was the same for Serafina so maybe more people received it as well? Adrien Stone, the great hero, could not refuse a call like this, it was a friend and it might be an adventure that would give him the ability to restore the name of his birth town. The Great Hero Adrien Stone, that sounded just right! And serafina made a living as a thief, she would be ok… he thought.
 
  											...
 
